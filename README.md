@@ -1,7 +1,7 @@
 ![Hessam Okati](https://uploadkon.ir/uploads/0cf912_25Web-1920-–-1.png)
 
 # 💫 About Me:
- Hello Friend 👋<br><br>I am Hossam Okati 😎<br><br>and I am a web programmer 👨‍💻<br><br>I wrote my first code in early 2021<br><br>and I have been working professionally on the web since 2022<br><br>and I am currently working as a full stack freelancer
+ Hello Friend 👋<br><br>I am Hessam Okati 😎<br><br>and I am a web programmer 👨‍💻<br><br>I wrote my first code in early 2021<br><br>and I have been working professionally on the web since 2022<br><br>and I am currently working as a full stack freelancer
 
 
 ## 🌐 Socials:
